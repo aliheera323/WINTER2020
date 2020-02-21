@@ -24,4 +24,9 @@ Stephen Chen (3:30pm)
 Alex Veroulis (12:30pm)   
 Colin Rabago (12:30pm)   
 
-#### Team 2:
+#### Team 2: Vivian Vipers
+
+Anton Citko (3:30pm)
+Kendrick Brayman (3:30pm)
+Karl Elbakian (12:30pm)
+Ali Heera (3:30pm)
